@@ -1,0 +1,1 @@
+# BetterNameplates-licenses
